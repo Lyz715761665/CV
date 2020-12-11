@@ -1,2 +1,2 @@
 # CV
-[embed]https://docs.google.com/document/d/1adDcol-USlRJan9frqQb7XKSgnjqB7cf39kScySseeE/edit?usp=sharing[/embed]
+[embed]https://github.com/Lyz715761665/CV/blob/main/CV(Yanzhi%20Li)%20.pdf[/embed]
